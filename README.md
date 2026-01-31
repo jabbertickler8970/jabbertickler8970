@@ -1,1 +1,4 @@
-![](https://i.pinimg.com/originals/11/bc/22/11bc228485f332c31ca7668f6c2b62e7.gif)
+<p align="center">
+<img src="https://i.pinimg.com/originals/0a/3a/55/0a3a5530d569da5e18565f3ea0a70a64.gif" p>
+        
+<p align="center"> c+h is okay i dont bite :^)
