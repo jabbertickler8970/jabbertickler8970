@@ -1,9 +1,13 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/91c2fd502b86e465d05b4522c4e6624a/8296153a19f751de-4e/s100x200/af23cd0d053b85881df951b77420a1e11119cada.gifv" p>
+<img src="https://biscuit.crd.co/assets/images/gallery68/d617a986.png?v=cc1c6dfa" p> <img src="https://biscuit.crd.co/assets/images/gallery68/844eb786.jpg?v=cc1c6dfa" p>
         
 <p align="center">
-<img src="https://i.pinimg.com/originals/bf/ec/82/bfec82a1e87674ce6000a2cc92559810.gif" p>
+<img src="https://i.pinimg.com/originals/2a/84/d4/2a84d443bb716e80d250b62e4a62eea8.gif" p>
         
-<p align="center"> c+h is okay i dont bite !!
+<p align="center"> c+h is heavily encouraged im just shy..
 <p align="center">
-<img src="https://i.postimg.cc/0yLbsQvM/n3an24.gif" p>
+
+<p align="center"> <a href="https://jermagerm.atabook.org/" title="atabook">atabook</a>　<a href="https://evanwashere.straw.page/" title="strawpage">strawpage</a>　<a href="https://rentry.co/jermagerm" title="rentry">rentry</a>
+<p align="center">
+<img src="https://biscuit2.crd.co/assets/images/gallery07/7e4de871.gif?v=417d2f39" p>
+
